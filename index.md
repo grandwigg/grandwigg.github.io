@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+I may have grand designs and plans in mind, but a Wigg can only cover so much scalp.
 
-Maybe say a some things about yourself.
+My interests generally include things such as amateur radio, homelab. Though I don't feel the need to limit myself to this alone.
 
-Or maybe what you plan to blog about.
+There will be no apologies for sudden and overwhelming floods of images or stories of my German Shepherd, Max.
+
+In any account, thanks for your time or patience.
